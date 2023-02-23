@@ -1,4 +1,4 @@
-Olá, meu nome é Rafael sunglasses
+Olá, meu nome é Rafael 😎
 
 Estudo CURSOS de Programação, Marketing, Inglês e Comunicação!!
 
